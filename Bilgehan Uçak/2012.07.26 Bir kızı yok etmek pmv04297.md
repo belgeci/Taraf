@@ -1,0 +1,29 @@
+# Bir kızı yok etmek
+
+*Bilgehan Uçak 26.07.2012*
+
+<div class="yazi"><p>O kadar cesur bir hareket yaptılar ki milyonlarca Fenerbahçe taraftarının gönlünü fethettiler.</p>
+<p>Şövalyece bir davranışla 21 yaşındaki bir kızı altı aydır çalıştığı FBTV ’den, bir buçuk sene önce tuttuğu takım lehine yazdığı tweetler yüzünden atıldı.</p>
+<p>Arkasında kimsesi olmayan 21 yaşındaki bir kızı “tuttuğu takım” yüzünden işinden at, sonra ahlak dersi ver. İnsaf! Demek ki, Fenerbahçe yönetimi için televizyonlarında “iyi” bir spiker olmasındansa “Fenerli” bir spiker olması daha önemli.</p>
+<p>Tabii bu zorbalık sadece Fener’e ait değil, her yanda karşımıza çıkıyor. Ahmet Samim’den Ali Kemal’e, Ali Akel’den şu son Selin Yağcıoğlu olayına kadar her yerde görüyoruz, hepsi linç edildiler.</p>
+<p>Zaten bizim medyayı hep linç etmişler burada.</p>
+<p>O kadar kanıksanmış ki bu durum, umursayan yok. Yapamadığı transferlerin acısını 21 yaşındaki bir kızdan, hem de onun daha FBTV’de çalışmazken attığı birkaç tweet yüzünden çıkarıyorsun, sonra ilk fırsatta mağduru oynuyorsun. Olmaz, olamaz.</p>
+<p>Neden olmaz biliyor musun, sen küçük bir gömlekçi olsaydın ve kızını güç bela bulduğu bir işten böyle bir sebeple atsalardı ne hissederdin Abdullah Kiğılı? İsyan etmez miydin, ne alakası var demez miydin, kızına destek olmaz mıydın?</p>
+<p>O kız senin kızın değil, sen de küçük bir gömlekçi değilsin diye mi susuyorsun?</p>
+<p>“Oldu olacak rakip takım taraftarlarını Kadıköy’e de sokmayın” diyeceğim ama yapamazsınız, maçtan önce tribünlere el hareketi çekip, formasındaki amblemi öpen ve taraftardan bir kamyon küfür yiyen Fatih Akyel’i birkaç sene sonra alan siz değil misiniz?</p>
+<p>Doğrusu ya, sorunun Galatasaraylılık değil de ilkesizlik olduğunu düşünüyorum. Hanginiz kendi kızınızın çalıştığı işyerinden böyle bir gerekçeyle atılmasını kabul edersiniz? İşi gücü olmayan birkaç adam “internet arkeolojisi” yapıp kendine kurban arayacak, siz de onlara ihtiyaçları olan kurbanları vereceksiniz. Selin, bütün hayatını “belki bir gün FBTV ’de çalışırım, dikkat edeyim” diyerek mi geçirecekti? Galatasaray’ın doktorunu alırken hangi takımı tuttuğunu soruyor musunuz?</p>
+<p>Bütün suçu Galatasaraylı olmak bu kızın.</p>
+<p>Merak ediyorum ne konuştunuz aranızda, kim teklif etti bu kızın kovulmasını, FBTV ’nin müdürü nasıl kabullendi? Koca koca adamlar bir masanın etrafına oturup 21 yaşındaki bir televizyoncu adayını kovmayı mı konuştunuz? Haksızlık sadece başkanına yapıldığında mı oluyor Abdullah Bey?</p>
+<p>Fenerbahçe daha büyük bir kulüp mü oldu bu kızı kovunca? Sahi, Selin mesela Cumhurbaşkanı Gül’ün kızı olsaydı, gene böyle harcar mıydınız? Başkan içerdeyken haklı bir şekilde tepki gösteren “basın şövalyeleri” neredeler acaba, Lube Ayar nerede, Ercan Saatçi nerede, Rıdvan Dilmen nerede?</p>
+<p>Neden iki kelime laf etmezler?</p>
+<p>Ahmet Samim’i öldüren, Ali Kemal’i linç eden, Kürt gazetecileri içeri tıkan, Hrant’ı ensesinden kurşunlayan zihniyet, Selin’i tuttuğu takım yüzünden mi kovmayacaktı? Gücü olan, “benim gibi düşünmüyor” dediği bütün gazetecileri yok ediyor.</p>
+<p>Geçen gün 21 yaşındaki televizyoncu olmak isteyen bir kızı kovdular. Takım tutmak işten atılma sebebi oldu. Hepimize öğrettiler.</p>
+<p>Gün gelecek bu gerilim bir yerde patlayacak, taraftarlar arasında savaş çıkacak, insanlar ölecek.</p>
+<p>O gün oğulları ölen birkaç annenin çığlığı duyulacak, o çığlığı duyan kaçmaya başlayacak.</p>
+<p>“Kendi kanalında, rakip takım taraftarı olan bir kızın çalışmasını istemeyenlere ses çıkarsaydın, bugün bu noktaya gelmezdik” diye hatırlatacak birileri.</p>
+<p>Fener yönetimi ise, taraftarına şirin görünüp 3-5 forma fazla satmanın peşinde.</p>
+<p>Bir kıza sahip çıkamadıktan sonra milyon değil milyar forma satsan ne olur Abdullah Kiğılı?</p>
+<p>twitter.com/bilgehanucak</p>
+</div>
+
+Kaynak: [taraf.com.tr](http://www.taraf.com.tr/bilgehan-ucak/makale-bir-kizi-yok-etmek.htm), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20131107154201/http://www.taraf.com.tr/bilgehan-ucak/makale-bir-kizi-yok-etmek.htm)
